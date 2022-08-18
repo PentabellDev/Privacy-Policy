@@ -1,7 +1,7 @@
 Privacy Policy for Expert Care
 -----------------
 ### Privacy Policy
-Last updated: August 17, 2022
+Last updated: August 17, 2022;
 This Privacy Policy describes our policies and procedures on the collection, use and disclosure of your information when you use the Service and tells you about your privacy rights and how the law protects you.
 We use Your Personal data to provide and improve the Service. By using the Service, You agree to the collection and use of information in accordance with this Privacy Policy. This Privacy Policy has been created by Pentabell for Expert Care mobile application.
 ### Interpretation and Definitions
